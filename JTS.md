@@ -7,6 +7,10 @@ baiChuan
 
 ![](https://i.etsystatic.com/28765256/r/il/2bd8f1/3820469765/il_1588xN.3820469765_s4q3.jpg)
 
+![](https://i.etsystatic.com/28765256/r/il/c5c3d6/3744725542/il_1588xN.3744725542_dug5.jpg)
+
+![](https://i.etsystatic.com/28765256/r/il/2760d1/3796937471/il_1588xN.3796937471_dr3q.jpg)
+
 ![](https://i.etsystatic.com/28765256/r/il/bcce08/3746943202/il_1588xN.3746943202_n23u.jpg)
 
 ## HeShu
@@ -51,7 +55,7 @@ PeiShang
 
 
 
-
+## MengJia
 
 ![](https://i.etsystatic.com/28765256/r/il/42f7d8/3631927630/il_1588xN.3631927630_24fb.jpg)梦嘉 黑色白色绿色 纹理锆石
 ![](https://i.etsystatic.com/28765256/r/il/4ecd4e/3851390132/il_1588xN.3851390132_qo1z.jpg)MengJia 梦嘉 嘻哈风不锈钢电镀 磨链手链
@@ -76,6 +80,8 @@ PeiShang
 
 ## QiTing  
 
+![](https://i.etsystatic.com/28765256/r/il/f0381d/4061617900/il_1588xN.4061617900_cy8t.jpg)
+
 ![](https://i.etsystatic.com/28765256/r/il/3a8b8b/4273299638/il_1588xN.4273299638_t5on.jpg)
 
 ![](https://i.etsystatic.com/28765256/r/il/6dd431/4046191823/il_1588xN.4046191823_a7fc.jpg)
@@ -98,34 +104,80 @@ QiTing
 
 
 
+## YuY NL
+
+![](https://i.etsystatic.com/28765256/r/il/b44e7b/3785654625/il_1588xN.3785654625_nas6.jpg)
 
 
-## YuY
+
+![](https://i.etsystatic.com/28765256/r/il/154a94/4074549578/il_1588xN.4074549578_i0ze.jpg)
+
+![](https://i.etsystatic.com/28765256/r/il/f93f65/3647633998/il_1588xN.3647633998_f5mh.jpg)
+
+![](https://i.etsystatic.com/28765256/r/il/3797db/3935622829/il_1588xN.3935622829_gpmk.jpg)
+
+![](https://i.etsystatic.com/28765256/r/il/0e96b5/3952486137/il_1588xN.3952486137_ocym.jpg)
+
+![](https://i.etsystatic.com/28765256/r/il/a785a1/3868771830/il_1588xN.3868771830_roee.jpg)
+
+![](https://i.etsystatic.com/28765256/r/il/18fd97/4099664808/il_1588xN.4099664808_qe8m.jpg)
+![](https://i.etsystatic.com/28765256/r/il/d8ef05/3886163912/il_1588xN.3886163912_t6vx.jpg)YuY 与瑜饰品细蛇骨链条项链女ins锁骨链叠戴欧美钛钢镀18K金细方蛇链
+
+![](https://i.etsystatic.com/28765256/r/il/43c6f4/3744913455/il_1588xN.3744913455_cuyp.jpg)
+
+## YuY Rings
+
+
+
+![](https://i.etsystatic.com/28765256/r/il/84315f/3704067263/il_1588xN.3704067263_qbuz.jpg)YuY
+
+![](https://i.etsystatic.com/28765256/r/il/f5996a/3717182543/il_1588xN.3717182543_itci.jpg)
+
+![](https://i.etsystatic.com/28765256/r/il/1a3ce4/3669282408/il_1588xN.3669282408_bxt4.jpg)
 
 ![](https://i.etsystatic.com/28765256/r/il/f6b93e/3985297688/il_1588xN.3985297688_myow.jpg)
 
 Thick Thin
 
-![](https://i.etsystatic.com/28765256/r/il/864fdb/3757720257/il_1588xN.3757720257_hv95.jpg)
+
 
 Rolo 
 
 ![](https://i.etsystatic.com/28765256/r/il/8937ea/3928520657/il_1588xN.3928520657_90qd.jpg)
 
+
+
 ![](https://i.etsystatic.com/28765256/r/il/aa7dc4/3686161451/il_1588xN.3686161451_c2zr.jpg)YuY
-![YuY](https://i.etsystatic.com/28765256/r/il/b00ecb/3703983849/il_1588xN.3703983849_dtcu.jpg) ![](https://i.etsystatic.com/28765256/r/il/3bd2ff/4027067165/il_1588xN.4027067165_hj7u.jpg)![](https://i.etsystatic.com/28765256/r/il/ce0def/3742443158/il_1588xN.3742443158_fyqb.jpg)YuY![](https://i.etsystatic.com/28765256/r/il/18fd97/4099664808/il_1588xN.4099664808_qe8m.jpg)
-![](https://i.etsystatic.com/28765256/r/il/d8ef05/3886163912/il_1588xN.3886163912_t6vx.jpg)YuY 与瑜饰品细蛇骨链条项链女ins锁骨链叠戴欧美钛钢镀18K金细方蛇链![](https://i.etsystatic.com/28765256/r/il/84315f/3704067263/il_1588xN.3704067263_qbuz.jpg)YuY![](https://i.etsystatic.com/28765256/r/il/4ef685/4368936017/il_1588xN.4368936017_om5g.jpg)
-![](https://i.etsystatic.com/28765256/r/il/413da4/3732723807/il_1588xN.3732723807_1x60.jpg) YuY 心形 钛钢  个性小心 送女友![](https://i.etsystatic.com/28765256/r/il/0e96b5/3952486137/il_1588xN.3952486137_ocym.jpg)![](https://i.etsystatic.com/28765256/r/il/8b85a3/3785731408/il_1588xN.3785731408_clef.jpg)
-![](https://i.etsystatic.com/28765256/r/il/3797db/3935622829/il_1588xN.3935622829_gpmk.jpg)
+![YuY](https://i.etsystatic.com/28765256/r/il/b00ecb/3703983849/il_1588xN.3703983849_dtcu.jpg) 
+
+## YuY Ear Rings
+
+![](https://i.etsystatic.com/28765256/r/il/3bd2ff/4027067165/il_1588xN.4027067165_hj7u.jpg)
+
+![](https://i.etsystatic.com/28765256/r/il/ce0def/3742443158/il_1588xN.3742443158_fyqb.jpg)YuY
+
+
+
+![](https://i.etsystatic.com/28765256/r/il/4ef685/4368936017/il_1588xN.4368936017_om5g.jpg)
+
+![](https://i.etsystatic.com/28765256/r/il/413da4/3732723807/il_1588xN.3732723807_1x60.jpg) YuY 心形 钛钢  个性小心 送女友
+
+
+
+![](https://i.etsystatic.com/28765256/r/il/8b85a3/3785731408/il_1588xN.3785731408_clef.jpg)
+
+
 YuY 与瑜光芒圆形 锁骨链
 ![](https://i.etsystatic.com/28765256/r/il/45f06d/3704072421/il_1588xN.3704072421_vigi.jpg)YuY 与瑜饰品双层戒指宽版双层钛钢 欧美复古ins简约不规则不锈钢指环
+
 ![](https://i.etsystatic.com/28765256/r/il/e66dbb/4155129313/il_1588xN.4155129313_opbr.jpg)
 YuY 与瑜饰品 首饰一件代发女savi项链链子素圈颈欧美u形钛钢扁蛇骨链
 ![](https://i.etsystatic.com/28765256/r/il/646cf7/4031605134/il_1588xN.4031605134_fakj.jpg)
 YuY 与瑜饰品耳饰欧美气质设计钛钢镀金韩式ins简约长耳环女耳钉 流苏
-![](https://i.etsystatic.com/28765256/r/il/43c6f4/3744913455/il_1588xN.3744913455_cuyp.jpg)
 
+## YuY
 
+![](https://i.etsystatic.com/28765256/r/il/864fdb/3757720257/il_1588xN.3757720257_hv95.jpg)
 
 
 
@@ -146,23 +198,52 @@ JieDing 义乌市杰鼎网红爆款欧美时尚百搭不锈钢耳扣金属圆圈
 
 ## JingY
 
+![](https://i.etsystatic.com/28765256/r/il/e9c453/3882132611/il_1588xN.3882132611_rz1u.jpg) 
+
+
+![](https://i.etsystatic.com/28765256/r/il/06b002/3674610046/il_1588xN.3674610046_d8uq.jpg)JingY 日系VIAN光面细戒指极简宽窄叠戴百搭指环
+
 ![](https://i.etsystatic.com/28765256/r/il/3334ce/3664932614/il_1588xN.3664932614_t7ii.jpg)
 JIngY JZ013鲸雨饰品 INS风罗马弧面白贝壳贝母椭圆戒指钛钢镀18K金
-![](https://i.etsystatic.com/28765256/r/il/dbf640/4145288916/il_1588xN.4145288916_ktgq.jpg)
-JingY XL045  多菱形亮片双层圆珠花瓣链项链锁骨链叠戴抖音网红款钛钢
+
+![](https://i.etsystatic.com/28765256/r/il/e91f5f/3904795644/il_1588xN.3904795644_ztxf.jpg)
+
+
+
+![](https://i.etsystatic.com/28765256/r/il/12858e/4614031231/il_1588xN.4614031231_hizb.jpg)
+
+
+
+
+
 ![](https://i.etsystatic.com/28765256/r/il/936345/4612458593/il_1588xN.4612458593_kkv4.jpg)
 JIngY SL024  鲸雨饰品 大福几何方块碎银子手链 钛钢镀18K金保色批发
+
 ![](https://cbu01.alicdn.com/cms/upload/detail/2012/bg-mask.png)
 ![](https://i.etsystatic.com/28765256/r/il/669296/3825315079/il_1588xN.3825315079_bvkn.jpg)
 JingYu XL256 鲸雨 洛丽塔小星星八芒星滴胶森系金黑项链锁骨链 钛钢保色
-![](https://i.etsystatic.com/28765256/r/il/06b002/3674610046/il_1588xN.3674610046_d8uq.jpg)JingY 日系VIAN光面细戒指极简宽窄叠戴百搭指环
-![](https://i.etsystatic.com/28765256/r/il/cbda5a/4435833790/il_1588xN.4435833790_4317.jpg) ![](https://i.etsystatic.com/28765256/r/il/eec598/3998546432/il_1588xN.3998546432_st0p.jpg)JingYu XL385 法式优雅黑钻复古椭圆雕刻INS风项链时尚 钛钢镀18K金
-![](https://i.etsystatic.com/28765256/r/il/e9c453/3882132611/il_1588xN.3882132611_rz1u.jpg)  ![](https://i.etsystatic.com/28765256/r/il/50f1c5/4073005550/il_1588xN.4073005550_mk8v.jpg)JingY 雾面哑光圆片小耳圈简约欧美百搭
+
+
+![](https://i.etsystatic.com/28765256/r/il/cbda5a/4435833790/il_1588xN.4435833790_4317.jpg)
+
+![](https://i.etsystatic.com/28765256/r/il/eec598/3998546432/il_1588xN.3998546432_st0p.jpg)JingYu XL385 法式优雅黑钻复古椭圆雕刻INS风项链时尚 钛钢镀18K金
+
+![](https://i.etsystatic.com/28765256/r/il/50f1c5/4073005550/il_1588xN.4073005550_mk8v.jpg)JingY 雾面哑光圆片小耳圈简约欧美百搭
 ![](https://i.etsystatic.com/28765256/r/il/cd0b1f/3898964938/il_1588xN.3898964938_fz85.jpg) JingY 黑白猫眼石丝绒光泽椭圆复古锁骨
 ![](https://i.etsystatic.com/28765256/r/il/1e70f9/3982594800/il_1588xN.3982594800_fa3t.jpg)
-JingY XL188 简约OL女款夏季流苏双水滴项链光面锁骨链 钛钢镀18K金![](https://i.etsystatic.com/28765256/r/il/33002f/4270494885/il_1588xN.4270494885_ituh.jpg)
-![](https://i.etsystatic.com/28765256/r/il/e91f5f/3904795644/il_1588xN.3904795644_ztxf.jpg)
+JingY XL188 简约OL女款夏季流苏双水滴项链光面锁骨链 钛钢镀18K金
+
+![](https://i.etsystatic.com/28765256/r/il/33002f/4270494885/il_1588xN.4270494885_ituh.jpg)
+
+
 ![](https://i.etsystatic.com/28765256/r/il/6445da/4297529915/il_1588xN.4297529915_ph43.jpg)
+
+![](https://i.etsystatic.com/28765256/r/il/f1ee62/4425795082/il_1588xN.4425795082_964a.jpg)
+
+![](https://i.etsystatic.com/28765256/r/il/dbf640/4145288916/il_1588xN.4145288916_ktgq.jpg)
+JingY XL045  多菱形亮片双层圆珠花瓣链项链锁骨链叠戴抖音网红款钛钢
+
+![](https://i.etsystatic.com/28765256/r/il/e47e40/4127843571/il_1588xN.4127843571_t6ly.jpg)
 
 |                                                              |                                                              |      |
 | ------------------------------------------------------------ | ------------------------------------------------------------ | ---- |
