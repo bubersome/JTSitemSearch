@@ -19,6 +19,8 @@ baiChuan
 
 ## AiMuNi
 
+![](https://i.etsystatic.com/28765256/r/il/cabfe9/3820565605/il_1588xN.3820565605_8j61.jpg)
+
 ![](https://i.etsystatic.com/28765256/r/il/2bd8f1/3820469765/il_1588xN.3820469765_s4q3.jpg)
 
 ![](https://i.etsystatic.com/28765256/r/il/c5c3d6/3744725542/il_1588xN.3744725542_dug5.jpg)
@@ -54,7 +56,7 @@ XinZheMei 新哲美 月亮流苏珍珠
 
 ![](https://i.etsystatic.com/28765256/r/il/9aa470/4336251588/il_1588xN.4336251588_sfud.jpg)
 
-
+![](https://i.etsystatic.com/28765256/r/il/5bf2cf/4356632570/il_1588xN.4356632570_8tfh.jpg)
 
 ## PeiShang
 
@@ -118,6 +120,10 @@ PeiShang
 
 ![](https://i.etsystatic.com/28765256/r/il/53aa28/3983936199/il_1588xN.3983936199_p5ph.jpg)
 
+![](https://i.etsystatic.com/28765256/r/il/a50095/3852676097/il_1588xN.3852676097_ljdh.jpg)
+
+Gold Genuine Mother of Pearl Necklace
+
 ## QiTing  
 
 ![](https://i.etsystatic.com/28765256/r/il/f0381d/4061617900/il_1588xN.4061617900_cy8t.jpg)
@@ -137,7 +143,7 @@ PeiShang
 
 ![](https://i.etsystatic.com/28765256/r/il/165a62/4038706641/il_1588xN.4038706641_43ec.jpg)
 
-
+![](https://i.etsystatic.com/28765256/r/il/c70dcb/4095301221/il_1588xN.4095301221_teaq.jpg)
 
 
 
@@ -154,6 +160,10 @@ QiTing
 
 
 ## YuY NL
+
+![](https://i.etsystatic.com/28765256/r/il/13e74c/4796374900/il_1588xN.4796374900_f5i7.jpg)
+
+![](https://i.etsystatic.com/28765256/r/il/1b2816/3921806621/il_1588xN.3921806621_389h.jpg)
 
 YuY 与瑜光芒圆形 锁骨链
 
@@ -210,6 +220,10 @@ YuY 与瑜饰品双层戒指宽版双层钛钢 欧美复古ins简约不规则不
 
 ![](https://i.etsystatic.com/28765256/r/il/1a3ce4/3669282408/il_1588xN.3669282408_bxt4.jpg)
 
+![Linked Ring](https://i.etsystatic.com/28765256/r/il/e3a58a/3748149653/il_1588xN.3748149653_5ddn.jpg)
+
+Thin Chain Ring
+
 ![](https://i.etsystatic.com/28765256/r/il/f6b93e/3985297688/il_1588xN.3985297688_myow.jpg)
 
 Thick Thin
@@ -231,7 +245,7 @@ Signet
 
 ![](https://i.etsystatic.com/28765256/r/il/c1e6b8/4094285587/il_1588xN.4094285587_jcp5.jpg)
 
-
+![](https://i.etsystatic.com/28765256/r/il/34bead/3922056801/il_1588xN.3922056801_73i2.jpg)
 
 ![](https://i.etsystatic.com/28765256/r/il/8937ea/3928520657/il_1588xN.3928520657_90qd.jpg)
 
@@ -317,6 +331,10 @@ Water Drop Earrings
 ## JingYu NL
 
 JingYu NL
+
+
+
+![](https://i.etsystatic.com/28765256/r/il/55931f/3844418722/il_1588xN.3844418722_keg3.jpg)
 
 ![](https://i.etsystatic.com/28765256/r/il/871b0e/4368855721/il_1588xN.4368855721_fctw.jpg)
 
